@@ -2,7 +2,7 @@
 
 # Awesome Piracy [MOSTELY FRENCH]
 
-Please let me know if there is a dead link
+Merci de me faire savoir si un lien ne fonctionne pas
 
 eBooks
 ---
@@ -12,7 +12,7 @@ eBooks
 Streaming
 ---
 
-- https://www.evstream.net/ (FR)
+- https://www.evstream.net/ (FR) a quelques difficultés en ce moment
 - https://flixgo.club/ (EN)
 
 Direct Download
