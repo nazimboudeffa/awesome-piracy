@@ -7,14 +7,15 @@ Please let me know if there is a dead link
 eBooks
 ---
 
-- http://www.the-eye.eu/
+- http://www.the-eye.eu/ (EN)
 
 Streaming
 ---
 
-- https://www.evstream.net/
+- https://www.evstream.net/ (FR)
+- https://flixgo.club/ (EN)
 
 Direct Download
 ---
 
-- https://www.sites-telechargement.com/
+- https://www.sites-telechargement.com/ (FR)
