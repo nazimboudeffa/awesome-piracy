@@ -20,3 +20,10 @@ Direct Download
 
 * Mix
   - http://www.the-eye.eu/ (EN)
+  
+LEGAL
+---
+
+- https://www.youtube.com/channel/UCaLorRUjEFeIz8HQCXDTG6Q (FR) Lucky Luke
+- https://www.youtube.com/user/PinkPanther (EN) La panthère rose 
+
