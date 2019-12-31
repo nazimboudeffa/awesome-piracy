@@ -9,7 +9,8 @@ Streaming
 ---
 
 - https://www.evstream.net/ (FR) a quelques difficultés en ce moment
-- https://flixgo.club/ (EN)
+- https://flixgo.club/ (EN) celui que j'utilise le plus
+- https://github.com/Igglybuff/awesome-piracy#streaming-sites (EN) liste mise à jour régulièrement
 
 Direct Download
 ---
