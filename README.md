@@ -4,10 +4,6 @@
 
 Merci de me faire savoir si un lien ne fonctionne pas
 
-eBooks
----
-
-- http://www.the-eye.eu/ (EN)
 
 Streaming
 ---
@@ -18,4 +14,8 @@ Streaming
 Direct Download
 ---
 
-- https://www.sites-telechargement.com/ (FR)
+* Movies
+  - https://www.sites-telechargement.com/ (FR)
+
+* Mix
+  - http://www.the-eye.eu/ (EN)
