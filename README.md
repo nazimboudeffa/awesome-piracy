@@ -2,6 +2,8 @@
 
 # Awesome Piracy [MOSTELY FRENCH]
 
+Please let me know if there is a dead link
+
 eBooks
 ---
 
