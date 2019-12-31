@@ -15,11 +15,8 @@ Streaming
 Direct Download
 ---
 
-* Movies
-  - https://www.sites-telechargement.com/ (FR)
-
-* Mix
-  - http://www.the-eye.eu/ (EN)
+- https://www.sites-telechargement.com/ (FR) films
+- http://www.the-eye.eu/ (EN) mix de plusieurs choses
   
 LEGAL
 ---
