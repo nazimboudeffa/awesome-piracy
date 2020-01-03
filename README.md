@@ -8,6 +8,7 @@ Merci de me faire savoir si un lien ne fonctionne pas
 Streaming
 ---
 
+- http://zetmir.com (FR)
 - https://libertyvf.biz (FR)
 - https://www.evstream.net/ (FR) a quelques difficultés en ce moment
 - https://flixgo.club/ (EN) celui que j'utilise le plus
