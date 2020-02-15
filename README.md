@@ -10,8 +10,8 @@ Streaming
 
 - http://zetmir.com (FR)
 - https://libertyvf.biz (FR)
-- https://www.evstream.net/ (FR) a quelques difficultés en ce moment
-- https://flixgo.club/ (EN) celui que j'utilise le plus
+- https://www.evstream.net/ (FR) mort
+- https://flixgo.biz/ (EN) celui que j'utilise le plus
 - https://github.com/Igglybuff/awesome-piracy#streaming-sites (EN) liste mise à jour régulièrement
 
 Direct Download
