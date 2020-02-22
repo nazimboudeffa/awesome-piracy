@@ -13,6 +13,7 @@ Streaming
 - https://www.evstream.net/ (FR) mort
 - https://flixgo.biz/ (EN) celui que j'utilise le plus
 - https://github.com/Igglybuff/awesome-piracy#streaming-sites (EN) liste mise à jour régulièrement
+- https://film2streaming.net/
 
 Direct Download
 ---
