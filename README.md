@@ -29,3 +29,9 @@ LEGAL
 - https://www.youtube.com/user/PinkPanther (EN) La panthère rose 
 - https://www.youtube.com/channel/UC9trsD1jCTXXtN3xIOIU8gg (EN) dessins animés (Tom et Jerry, ...)
 
+GAMES
+---
+
+- https://www.instant-gaming.com/
+- https://www.urcdkeys.com/
+
