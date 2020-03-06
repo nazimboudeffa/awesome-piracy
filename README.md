@@ -36,5 +36,9 @@ GAMES
 - https://www.instant-gaming.com/
 - https://www.humblebundle.com/
 - https://www.urcdkeys.com/
-- https://gamekit.com/ web 3.0
+
+WEB 3.0
+---
+- https://gitcoin.co/ etherum
+- https://gamekit.com/
 
