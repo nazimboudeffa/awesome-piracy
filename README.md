@@ -31,7 +31,7 @@ Public Domain
 - http://www.theabidingtimes.com/jesus/ (je rigoles, c'est pour voir si vous suivez 😂)
 - https://archive.org/details/movies
 - http://www.bnwmovies.com/ (B&W)
-- http://publicdomainmovies.net/ (Public Domain)
+- http://publicdomainmovies.net/ (So YEAH it's Public Domain)
 - http://www.openculture.com/list-of-great-public-domain-films (You'll probably find some pointers to archive.org)
 
 GAMES
