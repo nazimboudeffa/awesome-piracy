@@ -10,6 +10,8 @@ Pourquoi ? C'est parce qu'on aime ça
 
 Vous pouvez me trouver sur ce groupe https://www.facebook.com/groups/CSaddicct/ et ne m'ajoutez pas en tant qu'ami SVP
 
+PS : Pour les jeux je suis entrain d'y travailler
+
 Streaming
 ---
 
