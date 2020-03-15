@@ -15,11 +15,11 @@ Pour les jeux je suis entrain d'y travailler du coup ce serveur discord a l'air 
 Streaming
 ---
 
-- http://zetmir.com (FR)
+- https://github.com/Igglybuff/awesome-piracy#streaming-sites (EN) liste mise à jour régulièrement
 - https://libertyvf.biz (FR) c'est jamais stable et les liens sont souvent morts, je crois même qu'ils sont en prison
 - https://www.evstream.net/ (FR) mort totallement
 - https://flixgo.biz/ (EN) celui que j'utilise le plus
-- https://github.com/Igglybuff/awesome-piracy#streaming-sites (EN) liste mise à jour régulièrement
+- http://zetmir.com (FR) un petit nouveau surtout pour enfants
 - https://film2streaming.net/ (FR)
 
 Direct Download
