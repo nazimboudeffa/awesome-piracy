@@ -22,7 +22,7 @@ Direct Download
 - http://www.the-eye.eu/ (EN) mix de plusieurs choses
 - http://vegas-remingston.blogspot.com/2017/06/batman-1967-bdrip-saison-2-60-episodes.html Batman 1966
 
-LEGAL
+Public Domain
 ---
 
 - https://www.youtube.com/channel/UCaLorRUjEFeIz8HQCXDTG6Q (FR) Lucky Luke
