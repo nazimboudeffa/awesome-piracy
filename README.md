@@ -2,7 +2,7 @@
 
 # Awesome Piracy [MOSTELY FRENCH]
 
-Charité bien ordonnée commence par soi-même donc MON SITE 100% LEGAL c'est http://bledtube.com/ qui développé ici même sur GitHub ensuite sachez que pendant le COVID19 on est quand même assez content de trouver des sites qui proposent des films et séries des années 80s par exemple ou plus ancien qui sont dans le domaine publique
+Charité bien ordonnée commence par soi-même donc MON SITE 100% LEGAL c'est http://bledtube.com/ qui est développé ici même sur GitHub ensuite sachez que pendant le COVID19 on est quand même assez content de trouver des sites qui proposent des films et séries des années 80s par exemple ou plus ancien qui sont dans le domaine publique
 
 Merci de me faire savoir si un lien ne fonctionne pas et pensez qu'à l'époque on enregistrait des films et de la musique sur VHS et K7 et que ça n'a jamais mit l'industrie du cinéma en danger
 
