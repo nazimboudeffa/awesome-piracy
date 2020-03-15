@@ -8,7 +8,7 @@ Merci de me faire savoir si un lien ne fonctionne pas et pensez qu'à l'époque 
 
 Pourquoi ? C'est parce qu'on aime ça
 
-Vous pouvez me trouver sur ce groupe https://www.facebook.com/groups/CSaddicct/ et ne m'ajoutez pas en tant qu'ami SVP
+Vous pouvez me trouver sur ce groupe https://www.facebook.com/groups/CSaddicct/ et ne m'ajoutez pas en tant qu'ami SVP à part si vraiment on est ami dans la vie ou qu'on a assez discuté de choses importantes
 
 PS : Pour les jeux je suis entrain d'y travailler
 
