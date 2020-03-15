@@ -16,7 +16,7 @@ Streaming
 ---
 
 - http://zetmir.com (FR)
-- https://libertyvf.biz (FR) c'est jamais stable et les liens sont souvent morts
+- https://libertyvf.biz (FR) c'est jamais stable et les liens sont souvent morts, je crois même qu'ils sont en prison
 - https://www.evstream.net/ (FR) mort totallement
 - https://flixgo.biz/ (EN) celui que j'utilise le plus
 - https://github.com/Igglybuff/awesome-piracy#streaming-sites (EN) liste mise à jour régulièrement
