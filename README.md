@@ -28,7 +28,7 @@ LEGAL
 - https://www.youtube.com/channel/UCaLorRUjEFeIz8HQCXDTG6Q (FR) Lucky Luke
 - https://www.youtube.com/user/PinkPanther (EN) La panthère rose 
 - https://www.youtube.com/channel/UC9trsD1jCTXXtN3xIOIU8gg (EN) dessins animés (Tom et Jerry, ...)
-- http://www.theabidingtimes.com/jesus/
+- http://www.theabidingtimes.com/jesus/ (je rigoles, c'est pour voir si vous suivez)
 
 GAMES
 ---
