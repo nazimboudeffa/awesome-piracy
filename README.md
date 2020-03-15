@@ -32,7 +32,7 @@ Public Domain
 - https://archive.org/details/movies
 - http://www.bnwmovies.com/ (B&W)
 - http://publicdomainmovies.net/ (Public Domain)
-- http://www.openculture.com/list-of-great-public-domain-films (You're probably find some pointers to archive.org)
+- http://www.openculture.com/list-of-great-public-domain-films (You'll probably find some pointers to archive.org)
 
 GAMES
 ---
