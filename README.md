@@ -6,6 +6,10 @@ Charité bien ordonnée commence par soi-même donc MON SITE 100% LEGAL c'est ht
 
 Merci de me faire savoir si un lien ne fonctionne pas et pensez qu'à l'époque on enregistrait des films et de la musique sur VHS et K7 et que ça n'a jamais mit l'industrie du cinéma en danger
 
+Pourquoi ? C'est parce qu'on aime ça
+
+Vous pouvez me trouver sur ce groupe https://www.facebook.com/groups/CSaddicct/ et ne m'ajoutez pas en tant qu'ami SVP
+
 Streaming
 ---
 
