@@ -10,7 +10,7 @@ Pourquoi ? C'est parce qu'on aime ça
 
 Vous pouvez me trouver sur ce groupe https://www.facebook.com/groups/CSaddicct/ et ne m'ajoutez pas en tant qu'ami SVP à part si vraiment on est ami dans la vie ou qu'on a assez discuté de choses importantes
 
-PS : Pour les jeux je suis entrain d'y travailler
+Pour les jeux je suis entrain d'y travailler du coup ce discord a l'air sympas https://discordapp.com/invite/cqQnGA3
 
 Streaming
 ---
