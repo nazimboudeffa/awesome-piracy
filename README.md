@@ -2,8 +2,9 @@
 
 # Awesome Piracy [MOSTELY FRENCH]
 
-Merci de me faire savoir si un lien ne fonctionne pas
+Charité bien ordonnée commence par soi-même donc MON SITE 100% LEGAL c'est http://bledtube.com/ ensuite pendant le COVID19 on est quand même assez content de trouver des sites qui proposent des films et séries des années 80s par exemple ou plus ancien
 
+Merci de me faire savoir si un lien ne fonctionne pas
 
 Streaming
 ---
