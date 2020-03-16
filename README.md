@@ -55,3 +55,8 @@ WEB 3.0
 - https://gitcoin.co/ etherum
 - https://gamekit.com/
 
+SPECIAL Covid19 
+---
+
+- https://taleming.com/occuper-enfants-maison-coronavirus
+
