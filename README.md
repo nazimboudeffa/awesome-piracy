@@ -22,6 +22,7 @@ SPECIAL Covid19
 Blogs sur le ciné
 ---
 - http://mondocine.net/
+- https://www.youtube.com/channel/UCne-G65Lf_EQR9gQ5cIAHDg
 
 Streaming
 ---
