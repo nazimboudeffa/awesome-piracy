@@ -12,6 +12,13 @@ Vous pouvez me trouver sur ce groupe https://www.facebook.com/groups/CSaddicct/ 
 
 Pour les jeux je suis entrain d'y travailler du coup ce serveur discord a l'air sympas https://discordapp.com/invite/cqQnGA3
 
+SPECIAL Covid19 
+---
+
+- [My liste of stuff to READ/WATCH/PLAY](https://docs.google.com/spreadsheets/d/1j0C_pHcqLTUdiYa0IyMTJe1e35p1DygYIrvzEotmT20/edit?usp=sharing)
+- https://taleming.com/occuper-enfants-maison-coronavirus (From my friend [Olivier Roland](https://www.facebook.com/olivier.rolland.comedien))
+- https://sungsgarage.com/what-to-watch-as-we-stay-home (From [Sung Kang](https://www.facebook.com/SungKangOfficial/) we are lot to be his friend :trollface:)
+
 Streaming
 ---
 
@@ -55,10 +62,5 @@ WEB 3.0
 - https://gitcoin.co/ etherum
 - https://gamekit.com/
 
-SPECIAL Covid19 
----
 
-- [My liste of stuff to READ/WATCH/PLAY](https://docs.google.com/spreadsheets/d/1j0C_pHcqLTUdiYa0IyMTJe1e35p1DygYIrvzEotmT20/edit?usp=sharing)
-- https://taleming.com/occuper-enfants-maison-coronavirus (From my friend [Olivier Roland](https://www.facebook.com/olivier.rolland.comedien))
-- https://sungsgarage.com/what-to-watch-as-we-stay-home (From [Sung Kang](https://www.facebook.com/SungKangOfficial/) we are lot to be his friend :trollface:)
 
