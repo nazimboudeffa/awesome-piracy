@@ -58,6 +58,7 @@ WEB 3.0
 SPECIAL Covid19 
 ---
 
+- [My liste of things to READ/WATCH/PLAY](https://docs.google.com/spreadsheets/d/1j0C_pHcqLTUdiYa0IyMTJe1e35p1DygYIrvzEotmT20/edit?usp=sharing)
 - https://taleming.com/occuper-enfants-maison-coronavirus (From my friend [Olivier Roland](https://www.facebook.com/olivier.rolland.comedien))
 - https://sungsgarage.com/what-to-watch-as-we-stay-home (From [Sung Kang](https://www.facebook.com/SungKangOfficial/) we are lot to be his friend :trollface:)
 
