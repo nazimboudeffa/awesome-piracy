@@ -59,5 +59,5 @@ SPECIAL Covid19
 ---
 
 - https://taleming.com/occuper-enfants-maison-coronavirus (From my friend [Olivier Roland](https://www.facebook.com/olivier.rolland.comedien))
-- https://sungsgarage.com/what-to-watch-as-we-stay-home (From [Sung Kang](https://www.facebook.com/SungKangOfficial/))
+- https://sungsgarage.com/what-to-watch-as-we-stay-home (From [Sung Kang](https://www.facebook.com/SungKangOfficial/) we are friend but we are lot to be his friend :trollface:)
 
