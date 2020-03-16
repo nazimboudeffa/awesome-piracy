@@ -19,6 +19,10 @@ SPECIAL Covid19
 - https://taleming.com/occuper-enfants-maison-coronavirus (From my friend [Olivier Roland](https://www.facebook.com/olivier.rolland.comedien) not sure he is the creator of the list 😜)
 - https://sungsgarage.com/what-to-watch-as-we-stay-home (From [Sung Kang](https://www.facebook.com/SungKangOfficial/) we are lot to be his friend :trollface:)
 
+Blogs sur le ciné
+---
+- http://mondocine.net/
+
 Streaming
 ---
 
