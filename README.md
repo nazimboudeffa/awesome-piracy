@@ -58,6 +58,6 @@ WEB 3.0
 SPECIAL Covid19 
 ---
 
-- https://taleming.com/occuper-enfants-maison-coronavirus
-- https://sungsgarage.com/what-to-watch-as-we-stay-home
+- https://taleming.com/occuper-enfants-maison-coronavirus (From my friend Olivier Roland)
+- https://sungsgarage.com/what-to-watch-as-we-stay-home (From Sung Kang)
 
