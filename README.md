@@ -18,6 +18,17 @@ SPECIAL Covid19
 - [My list of stuff to READ/WATCH/PLAY in general not only with the COVID19](https://docs.google.com/spreadsheets/d/1j0C_pHcqLTUdiYa0IyMTJe1e35p1DygYIrvzEotmT20/edit?usp=sharing)
 - https://taleming.com/occuper-enfants-maison-coronavirus (From my friend [Olivier Roland](https://www.facebook.com/olivier.rolland.comedien) not sure he is the creator of the list 😜)
 - https://sungsgarage.com/what-to-watch-as-we-stay-home (From [Sung Kang](https://www.facebook.com/SungKangOfficial/) we are lot to be his friend :trollface:)
+- [OPERA DE PARIS](https://www.lefigaro.fr/musique/l-opera-de-paris-met-en-ligne-gratuitement-ses-spectacles-pendant-le-confinement-20200316?utm_source=app&utm_medium=sms&utm_campaign=fr.playsoft.lefigarov3)
+
+  - Du 17 au 22/03: Manon
+  - Du 23 au 29/03: Don Giovanni (2019)
+  - Du 30 au 05/04: Le Lac des cygnes (2019)
+  - Du 06 au 12/04: Le Barbier de Séville (2014)
+  - Du 13 au 19/04: Soirée Robbins (2018)
+  - Du 20 au 26/04: Les contes d’Hoffmann (2016)
+  - Du 27 au 03/05: Carmen (2017)
+
+- http://www.culturetheque.com/exploitation/default/accueil-portal.aspx (3 semaines de lecture gratuite à partir du 17/03/2019)
 
 Blogs sur le ciné
 ---
