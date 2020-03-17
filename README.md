@@ -37,23 +37,6 @@ Blogs sur le ciné
 - http://www.marlasmovies.com/
 - https://www.youtube.com/channel/UCne-G65Lf_EQR9gQ5cIAHDg
 
-Streaming
----
-
-- https://github.com/Igglybuff/awesome-piracy#streaming-sites (EN) liste mise à jour régulièrement
-- https://libertyvf.biz (FR) c'est jamais stable et les liens sont souvent morts, je crois même qu'ils sont en prison
-- https://www.evstream.net/ (FR) mort totallement
-- https://flixgo.biz/ (EN) celui que j'utilise le plus
-- http://zetmir.com (FR) un petit nouveau surtout pour enfants
-- https://film2streaming.net/ (FR) aucune idée, trouvé par hasard
-
-Direct Download
----
-
-- https://www.sites-telechargement.com/ (FR) films : il y a une erreur en ce moment
-- http://www.the-eye.eu/ (EN) mix de plusieurs choses
-- http://vegas-remingston.blogspot.com/2017/06/batman-1967-bdrip-saison-2-60-episodes.html Batman 1966
-
 Public Domain
 ---
 
@@ -79,6 +62,23 @@ WEB 3.0
 ---
 - https://gitcoin.co/ etherum
 - https://gamekit.com/
+
+Streaming
+---
+
+- https://github.com/Igglybuff/awesome-piracy#streaming-sites (EN) liste mise à jour régulièrement
+- https://libertyvf.biz (FR) c'est jamais stable et les liens sont souvent morts, je crois même qu'ils sont en prison
+- https://www.evstream.net/ (FR) mort totallement
+- https://flixgo.biz/ (EN) celui que j'utilise le plus
+- http://zetmir.com (FR) un petit nouveau surtout pour enfants
+- https://film2streaming.net/ (FR) aucune idée, trouvé par hasard
+
+Direct Download
+---
+
+- https://www.sites-telechargement.com/ (FR) films : il y a une erreur en ce moment
+- http://www.the-eye.eu/ (EN) mix de plusieurs choses
+- http://vegas-remingston.blogspot.com/2017/06/batman-1967-bdrip-saison-2-60-episodes.html Batman 1966
 
 
 
