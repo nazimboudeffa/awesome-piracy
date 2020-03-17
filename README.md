@@ -30,6 +30,8 @@ SPECIAL Covid19
 
 - http://www.culturetheque.com/exploitation/default/accueil-portal.aspx (3 semaines de lecture gratuite à partir du 17/03/2019)
 
+- [Live Virtual Concert](https://www.npr.org/2020/03/17/816504058/a-list-of-live-virtual-concerts-to-watch-during-the-coronavirus-shutdown?utm_campaign=npr&utm_source=facebook.com&utm_term=nprnews&utm_medium=social) (from https://www.facebook.com/groups/duderino/)
+
 Blogs sur le ciné
 ---
 - http://mondocine.net/
