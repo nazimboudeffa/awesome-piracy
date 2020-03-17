@@ -45,7 +45,7 @@ Streaming
 - https://www.evstream.net/ (FR) mort totallement
 - https://flixgo.biz/ (EN) celui que j'utilise le plus
 - http://zetmir.com (FR) un petit nouveau surtout pour enfants
-- https://film2streaming.net/ (FR)
+- https://film2streaming.net/ (FR) aucune idée, trouvé par hasard
 
 Direct Download
 ---
