@@ -32,6 +32,8 @@ SPECIAL Covid19
 
 - [Live Virtual Concert](https://www.npr.org/2020/03/17/816504058/a-list-of-live-virtual-concerts-to-watch-during-the-coronavirus-shutdown?utm_campaign=npr&utm_source=facebook.com&utm_term=nprnews&utm_medium=social) (from https://www.facebook.com/groups/duderino/)
 
+- https://www.tomsguide.fr/musiciens-confines-korg-et-moog-offrent-leurs-apps-de-synthetiseur
+
 Blogs sur le ciné
 ---
 - http://mondocine.net/
