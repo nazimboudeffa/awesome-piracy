@@ -34,7 +34,7 @@ SPECIAL Covid19
 
 - https://www.tomsguide.fr/musiciens-confines-korg-et-moog-offrent-leurs-apps-de-synthetiseur
 
-- https://www.lebonbon.fr/bordeaux/expo/musees-visiter-gratuitement-ligne
+- https://www.lebonbon.fr/bordeaux/expo/musees-visiter-gratuitement-ligne (par [Histoire d'Apprendre](https://www.facebook.com/groups/526588871531978/))
 
 Blogs sur le ciné
 ---
