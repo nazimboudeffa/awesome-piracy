@@ -38,6 +38,8 @@ SPECIAL Covid19
 
 - [Assassin's Creed Odyssey](https://store.ubi.com/fr/assassins-creed-odyssey/5afda5f788a7e34d25b5012f.html#start=1) Gratuit du 19/03 au 22/03
 
+- [Bruce Springsteen - Live In Hyde Park](https://www.rocknfolk.com/a-la-une/video-bruce-springsteen-met-en-ligne-lintegralite-de-son-live-in-hyde-park/43579) is Free
+
 Blogs sur le ciné
 ---
 - http://mondocine.net/
