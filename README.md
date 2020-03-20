@@ -42,6 +42,8 @@ SPECIAL Covid19
 
 - https://www.vogue.fr/culture/article/casa-azul-musee-frida-kahlo-au-mexique-mexico
 
+- [Free Coding Class](https://www.businessinsider.com/bill-gates-favorite-free-websites-classes-teach-yourself-to-code?IR=T?utm_source=copy-link&utm_medium=referral&utm_content=topbar) from Bill Gates 
+
 Blogs sur le ciné
 ---
 - http://mondocine.net/
