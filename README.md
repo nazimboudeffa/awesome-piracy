@@ -44,6 +44,8 @@ SPECIAL Covid19
 
 - [Free Coding Class](https://www.businessinsider.com/bill-gates-favorite-free-websites-classes-teach-yourself-to-code?IR=T?utm_source=copy-link&utm_medium=referral&utm_content=topbar) from Bill Gates 
 
+- [Games to Stay Inside](https://itch.io/c/757294/games-to-help-you-stay-inside) from itch.io
+
 Blogs sur le ciné
 ---
 - http://mondocine.net/
