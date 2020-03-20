@@ -38,6 +38,10 @@ SPECIAL Covid19
 
 - [Assassin's Creed Odyssey](https://store.ubi.com/fr/assassins-creed-odyssey/5afda5f788a7e34d25b5012f.html#start=1) Gratuit du 19/03 au 22/03
 
+- https://store.steampowered.com/app/203160/Tomb_Raider/ Free until ?
+
+- https://www.epicgames.com/store/fr/product/watch-dogs/home Free until 26/03/2020
+
 - [Bruce Springsteen - Live In Hyde Park](https://www.rocknfolk.com/a-la-une/video-bruce-springsteen-met-en-ligne-lintegralite-de-son-live-in-hyde-park/43579) is Free
 
 - https://www.vogue.fr/culture/article/casa-azul-musee-frida-kahlo-au-mexique-mexico
