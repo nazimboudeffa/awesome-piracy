@@ -52,6 +52,8 @@ SPECIAL Covid19
 
 - [Vister le Colisée Virtuellement](https://www.rts.ch/info/culture/arts-visuels/11178009-visiter-virtuellement-le-colisee-le-moma-ou-le-louvre-de-chez-soi.html)
 
+- Livres à Lire pendant le Confinement https://www.youtube.com/watch?v=tRfNObSO8x8 (par Cedric Anicette)
+
 Blogs sur le ciné
 ---
 - http://mondocine.net/
