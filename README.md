@@ -54,6 +54,8 @@ SPECIAL Covid19
 
 - Livres à Lire pendant le Confinement https://www.youtube.com/watch?v=tRfNObSO8x8 (par Cedric Anicette)
 
+- CANAL+ est en clair partout https://www.facebook.com/canalplus/photos/a.171659652905724/3595342640537391
+
 Blogs sur le ciné
 ---
 - http://mondocine.net/
