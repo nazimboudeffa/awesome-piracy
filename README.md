@@ -56,7 +56,7 @@ SPECIAL Covid19
 
 - CANAL+ est en clair partout https://www.facebook.com/canalplus/photos/a.171659652905724/3595342640537391
 
-- LEs chaines jeunesse gratuites https://www.facebook.com/FreeFrance/photos/a.354628647883997/3365460660134099
+- Les chaines jeunesse gratuites https://www.facebook.com/FreeFrance/photos/a.354628647883997/3365460660134099
 
 Blogs sur le ciné
 ---
