@@ -62,6 +62,8 @@ SPECIAL Covid19
 
 - https://livre.fnac.com/n286016/Petit-prix-et-bons-plans-ebooks/Tous-les-Ebooks-gratuits (via VinyCulture)
 
+- [Des Cours Gratuits à la TV](http://www.leparisien.fr/culture-loisirs/tv/confinement-france-4-lance-l-ecole-a-la-maison-a-la-television-22-03-2020-8285583.php#xtor=AD-1481423552) (via le parisien)
+
 Blogs sur le ciné
 ---
 - http://mondocine.net/
