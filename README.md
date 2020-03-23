@@ -97,6 +97,7 @@ GAMES
 - https://www.humblebundle.com/
 - https://www.urcdkeys.com/
 - https://xboxdesignlab.xbox.com/ customize your xbox controller
+- https://www.g2a.com/
 
 WEB 3.0
 ---
