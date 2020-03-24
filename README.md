@@ -66,6 +66,8 @@ SPECIAL Covid19
 
 - https://papapositive.fr/10-musees-a-visiter-en-famille-de-son-canape-special-confinement-1
 
+- https://cinenice.mediatheques.fr/ (La cinémathèque de Nice ouvre ses portes numériques)
+
 Blogs sur le ciné
 ---
 - http://mondocine.net/
