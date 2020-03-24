@@ -64,6 +64,8 @@ SPECIAL Covid19
 
 - [Des Cours Gratuits à la TV](http://www.leparisien.fr/culture-loisirs/tv/confinement-france-4-lance-l-ecole-a-la-maison-a-la-television-22-03-2020-8285583.php#xtor=AD-1481423552) (via le parisien)
 
+- https://papapositive.fr/10-musees-a-visiter-en-famille-de-son-canape-special-confinement-1
+
 Blogs sur le ciné
 ---
 - http://mondocine.net/
