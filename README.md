@@ -68,6 +68,8 @@ SPECIAL Covid19
 
 - https://cinenice.mediatheques.fr/ (La cinémathèque de Nice ouvre ses portes numériques)
 
+- [Metallica Mondays](https://www.rocknfolk.com/a-la-une/video-metallica-lance-sa-serie-de-concerts-en-ligne-les-metallica-mondays/43749) (via Rock & Folk)
+
 Blogs sur le ciné
 ---
 - http://mondocine.net/
