@@ -70,6 +70,10 @@ SPECIAL Covid19
 
 - [Metallica Mondays](https://www.rocknfolk.com/a-la-une/video-metallica-lance-sa-serie-de-concerts-en-ligne-les-metallica-mondays/43749) (via Rock & Folk)
 
+- 200 films Algériens gratuits (via vinyculture)
+  - https://www.youtube.com/channel/UCRUO7YJW9ROyq52K7dm6-Bw
+  - https://www.youtube.com/playlist?list=PL9DItD3E2KWCm6vqdbYoplQAm_kZ653Tz
+
 Blogs sur le ciné
 ---
 - http://mondocine.net/
