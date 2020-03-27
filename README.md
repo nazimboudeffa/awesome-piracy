@@ -73,6 +73,8 @@ SPECIAL Covid19
 - 200 films Algériens gratuits (via vinyculture)
   - https://www.youtube.com/channel/UCRUO7YJW9ROyq52K7dm6-Bw
   - https://www.youtube.com/playlist?list=PL9DItD3E2KWCm6vqdbYoplQAm_kZ653Tz
+  
+- La Canard Enchainné est gratuit https://www.lecanardenchaine.fr/
 
 Blogs sur le ciné
 ---
