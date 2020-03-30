@@ -76,6 +76,8 @@ SPECIAL Covid19
   
 - La Canard Enchainné est gratuit https://www.lecanardenchaine.fr/
 
+- [La Comedie Française](https://parissecret.com/confinement-la-comedie-francaise-met-en-ligne-ses-spectacles-et-pieces-de-theatre-gratuitement)
+
 Blogs sur le ciné
 ---
 - http://mondocine.net/
