@@ -78,6 +78,8 @@ SPECIAL Covid19
 
 - [La Comedie Française](https://parissecret.com/confinement-la-comedie-francaise-met-en-ligne-ses-spectacles-et-pieces-de-theatre-gratuitement) (via Olivier Roland)
 
+- [300 livres d'art gratuits en ligne](https://www.vinyculture.com/300-livres-dart-mis-en-ligne-gratuitement) (via vinyculture)
+
 Blogs sur le ciné
 ---
 - http://mondocine.net/
