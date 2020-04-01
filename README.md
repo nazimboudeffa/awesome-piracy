@@ -80,6 +80,8 @@ SPECIAL Covid19
 
 - [300 livres d'art gratuits en ligne](https://www.vinyculture.com/300-livres-dart-mis-en-ligne-gratuitement) (via vinyculture)
 
+- https://stories.audible.com/discovery/enterprise-discovery-21122523011 (pour enfants)
+
 Blogs sur le ciné
 ---
 - http://mondocine.net/
