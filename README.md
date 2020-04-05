@@ -82,6 +82,8 @@ SPECIAL Covid19
 
 - https://stories.audible.com/discovery/enterprise-discovery-21122523011 (pour enfants)
 
+- https://nickel.eu/fr/magazine/covid-19-liste-des-choses-faire-pendant-le-confinement
+
 Blogs sur le ciné
 ---
 - http://mondocine.net/
