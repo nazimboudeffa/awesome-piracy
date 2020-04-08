@@ -119,6 +119,15 @@ GAMES
 - https://xboxdesignlab.xbox.com/ customize your xbox controller
 - https://www.g2a.com/
 
+GAME BLOGS
+---
+
+- http://www.jeuxvideo.com/
+- https://www.gamekult.com/
+- http://www.gameblog.fr/
+- https://gamergen.com/
+- https://www.jeuxactu.com/
+
 WEB 3.0
 ---
 - https://gitcoin.co/ etherum
