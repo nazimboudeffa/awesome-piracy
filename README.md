@@ -128,6 +128,11 @@ GAME BLOGS
 - https://gamergen.com/
 - https://www.jeuxactu.com/
 
+RETRO GAMING
+---
+
+- https://www.abandonware-magazines.org/
+
 WEB 3.0
 ---
 - https://gitcoin.co/ etherum
