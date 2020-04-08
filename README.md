@@ -120,7 +120,7 @@ GAMES
 - https://www.g2a.com/
 
 GAME BLOGS
----
+----
 
 - http://www.jeuxvideo.com/
 - https://www.gamekult.com/
@@ -128,10 +128,11 @@ GAME BLOGS
 - https://gamergen.com/
 - https://www.jeuxactu.com/
 
-RETRO GAMING
----
+RETRO GAMING MAGAZINES
+----
 
 - https://www.abandonware-magazines.org/
+- https://www.cpc-power.com/
 
 WEB 3.0
 ---
