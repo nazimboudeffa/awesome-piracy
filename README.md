@@ -12,6 +12,8 @@ Vous pouvez me trouver sur ce groupe https://www.facebook.com/groups/CSaddicct/ 
 
 Pour les jeux je suis entrain d'y travailler du coup ce serveur discord a l'air sympas https://discordapp.com/invite/cqQnGA3
 
+Nous avons ouvert un groupe de MAGAZINES RETRO JEUX, vous pouvez m'y retrouver https://www.facebook.com/groups/213392303264555/
+
 SPECIAL Covid19 
 ---
 
