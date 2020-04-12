@@ -1,4 +1,4 @@
-# Vur Download Magazine numéro du 12 juin 2015
+# Vu sur Download Magazine numéro du 12 juin 2015
 
 ## DDL
 
