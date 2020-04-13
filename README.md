@@ -88,7 +88,7 @@ SPECIAL Covid19
 
 - https://www.idfa.nl/en/collection/free?page=1 300 films à visionner
 
-- https://outilstice.com/2018/02/colorourcollections-donnez-des-couleurs-a-de-belles-planches-du-patrimoine
+- https://outilstice.com/2020/04/colorourcollections-coloriages-gratuits
 
 Blogs sur le ciné
 ---
