@@ -86,6 +86,10 @@ SPECIAL Covid19
 
 - https://nickel.eu/fr/magazine/covid-19-liste-des-choses-faire-pendant-le-confinement
 
+- https://www.idfa.nl/en/collection/free?page=1 300 films à visionner
+
+- https://outilstice.com/2018/02/colorourcollections-donnez-des-couleurs-a-de-belles-planches-du-patrimoine
+
 Blogs sur le ciné
 ---
 - http://mondocine.net/
