@@ -1,6 +1,6 @@
 # Watch (on SPLIIIT.com)
 
-- http://crunchyroll.com/
+- http://crunchyroll.com/ 👈 
 - https://animedigitalnetwork.fr/
 - https://www.izneo.com/fr/
 
