@@ -6,9 +6,9 @@
 
 # News
 
-- https://anidb.net/
+- https://anidb.net/ 👈
 - https://anilist.co/
-- http://animecalendar.eu/
+- http://animecalendar.eu/ 👈 works fine with crunchyroll
 - https://www.animenewsnetwork.com/encyclopedia/
 - https://www.anime-planet.com/
 - https://www.anisearch.com/
