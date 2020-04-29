@@ -18,3 +18,11 @@
 - http://m-p.sakura.ne.jp/Html/anime.html
 - https://www.animenewsnetwork.com/encyclopedia/
 - https://www.mangaupdates.com/
+
+# Novels
+
+- https://vndb.org/
+- http://lndb.info/
+- https://www.jdorama.com/
+- https://mydramalist.com/
+- http://mydramalist.info/
