@@ -8,7 +8,7 @@
 
 - https://anidb.net/ 👈
 - https://anilist.co/
-- http://animecalendar.eu/ 👈 works fine with crunchyroll
+- http://animecalendar.eu/ 👈 Works fine with crunchyroll
 - https://www.animenewsnetwork.com/encyclopedia/
 - https://www.anime-planet.com/
 - https://www.anisearch.com/
