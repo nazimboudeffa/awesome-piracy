@@ -1,4 +1,4 @@
-# Watch
+# Watch (on SPLIIIT.com)
 
 - http://crunchyroll.com/
 - https://animedigitalnetwork.fr/
