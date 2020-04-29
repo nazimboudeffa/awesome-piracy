@@ -1,6 +1,10 @@
+# Watch
+
 - http://crunchyroll.com/
 - https://animedigitalnetwork.fr/
 - https://www.izneo.com/fr/
+
+# News
 
 - https://anidb.net/
 - https://anilist.co/
