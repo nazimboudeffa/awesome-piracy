@@ -100,15 +100,20 @@ Blogs sur le ciné
 Public Domain
 ---
 
-- https://www.youtube.com/channel/UCaLorRUjEFeIz8HQCXDTG6Q (FR) Lucky Luke
-- https://www.youtube.com/user/PinkPanther (EN) La panthère rose 
-- https://www.youtube.com/channel/UC9trsD1jCTXXtN3xIOIU8gg (EN) dessins animés (Tom et Jerry, ...)
 - http://www.theabidingtimes.com/jesus/ (je rigoles, c'est pour voir si vous suivez 😂)
 - https://archive.org/details/movies
 - http://www.bnwmovies.com/ (B&W)
 - http://publicdomainmovies.net/ (So YEAH it's Public Domain)
 - http://www.openculture.com/list-of-great-public-domain-films (You'll probably find some pointers to archive.org)
 - http://www.apar.tv/cinema/700-films-rares-et-gratuits-disponibles-ici-et-maintenant (pointeur sur openculture)
+
+Dessins Animés
+---
+
+- https://www.youtube.com/watch?v=5xQ-hN-WW14&list=PLBqc73oQ4bMOKd0xilD8AW9sbUJhMP-3a
+- https://www.youtube.com/channel/UCaLorRUjEFeIz8HQCXDTG6Q (FR) Lucky Luke
+- https://www.youtube.com/user/PinkPanther (EN) La panthère rose 
+- https://www.youtube.com/channel/UC9trsD1jCTXXtN3xIOIU8gg (EN) dessins animés (Tom et Jerry, ...)
 
 RADIOS
 ---
