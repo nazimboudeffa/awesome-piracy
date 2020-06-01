@@ -96,6 +96,7 @@ Blogs sur le ciné
 - https://www.indyblaveleblog.com/
 - http://www.marlasmovies.com/
 - https://www.youtube.com/channel/UCne-G65Lf_EQR9gQ5cIAHDg
+- https://www.site-de-telechargement.com/ (Les Cahiers du Cinéma)
 
 Public Domain
 ---
