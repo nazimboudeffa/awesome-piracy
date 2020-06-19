@@ -123,7 +123,7 @@ RADIOS
 - http://www.sing-sing-bis.org/
 - https://radio.x-team.com/?utm_source=facebook (music for developers by x-team)
 
-GAMES
+GAMES DEALS
 ---
 
 - https://www.instant-gaming.com/
@@ -133,6 +133,8 @@ GAMES
 - https://www.g2a.com/
 - https://www.greenmangaming.com/
 - https://www.cdkeys.com/
+- https://www.hrkgame.com/
+- https://www.kinguin.net/
 
 GAME BLOGS
 ----
