@@ -177,5 +177,11 @@ Cracks
 
 - https://crackwatch.com/
 
+Deals
+---
+
+- https://www.dealabs.com/
+- https://slickdeals.net/
+
 
 
