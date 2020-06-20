@@ -130,7 +130,7 @@ GAMES DEALS
 - https://www.humblebundle.com/
 - https://www.urcdkeys.com/
 - https://xboxdesignlab.xbox.com/ customize your xbox controller
-- https://www.g2a.com/
+- https://www.g2a.com/ problems with stolen keys
 - https://www.greenmangaming.com/
 - https://www.cdkeys.com/
 - https://www.hrkgame.com/
@@ -186,6 +186,7 @@ Deals
 
 - https://www.dealabs.com/
 - https://slickdeals.net/
+- https://gg.deals/
 
 
 
