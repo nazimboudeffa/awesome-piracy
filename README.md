@@ -135,6 +135,7 @@ GAMES DEALS
 - https://www.cdkeys.com/
 - https://www.hrkgame.com/
 - https://www.kinguin.net/
+- https://www.gamebillet.com/
 
 GAME BLOGS
 ----
