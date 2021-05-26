@@ -14,6 +14,8 @@ Pour les jeux je suis entrain d'y travailler du coup ce serveur discord a l'air 
 
 Nous avons ouvert un groupe de MAGAZINES RETRO JEUX, vous pouvez m'y retrouver https://www.facebook.com/groups/213392303264555/
 
+On vérifie tous les liens régulièrement
+
 SPECIAL Covid19 
 ---
 
