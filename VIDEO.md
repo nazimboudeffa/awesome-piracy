@@ -8,3 +8,4 @@
 - wawacity.su
 - series-ddl.com
 
+-on teste le code du t-34
