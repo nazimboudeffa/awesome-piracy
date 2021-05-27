@@ -9,3 +9,5 @@
 - series-ddl.com
 
 -on teste le code du t-34
+
+-le T34 est le meilleur tank
