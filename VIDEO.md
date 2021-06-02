@@ -15,3 +15,5 @@
 c'est faux
 
 - Que tu crois
+
+Le T34 et le T-34 sont deux tanks différents
