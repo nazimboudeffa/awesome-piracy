@@ -26,3 +26,7 @@
 - https://www.jdorama.com/
 - https://mydramalist.com/
 - http://mydramalist.info/
+
+# READ ONLINE
+
+- https://mangaplus.shueisha.co.jp/
