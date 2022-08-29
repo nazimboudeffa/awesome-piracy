@@ -8,12 +8,11 @@
 - wawacity.su
 - series-ddl.com
 
--on teste le code du t-34
+## Streaming
 
--le T34 est le meilleur tank 
-
-c'est faux
-
-- Que tu crois
-
-Le T34 et le T-34 sont deux tanks différents
+- coflix
+- Soap2day.art
+- NekoSama.fr
+- time2watch.sie (français)
+- afdah.top
+- streamio.comm App
