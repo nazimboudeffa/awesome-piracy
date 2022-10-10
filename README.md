@@ -92,6 +92,30 @@ SPECIAL Covid19
 
 - https://outilstice.com/2020/04/colorourcollections-coloriages-gratuits
 
+UNESCO
+---
+
+L'Unesco a eu la grande idée de donner accès gratuitement à la bibliothèque numérique mondiale sur Internet.
+Un beau cadeau à toute l'humanité !
+Voici le lien : https://www.wdl.org/fr  pour la France. Il rassemble des cartes, des textes, des photos, des enregistrements et des films de tous les temps et explique les joyaux et les reliques culturelles de toutes les bibliothèques de la planète, disponible en sept langues.
+Profitez-en et faites-en profiter votre entourage.
+Et puis plusieurs liens qui intéresseront les amateurs de musée, d’opéra, de cinéma 
+ - La Fnac a mis une sélection de 500 livres gratuits à télécharger, je vous mets le lien:
+ https://livre.fnac.com/n309183/Tous-les-Ebooks-gratuits
+ Quelques lieux ou spectacles culturels que vous pouvez visiter depuis chez vous:
+- L' Opéra National de Paris met en ligne gratuitement ses spectacles sur https://lnkd.in/gwdGY8n
+- Le Metropolitan Opera de New York va diffuser gratuitement ses spectacles
+ https://bit.ly/2w2QXbP
+- La Cinémathèque Française propose ses 800 masterclass, essais & conférences en vidéo, 500 articles sur ses collections & ses programmations
+https://lnkd.in/ghCcNKn
+ - Le Forum des Images propose de visionner ses rencontres
+ https://lnkd.in/gFbzp5q
+ - Centre Pompidou : Vous pouvez écouter les podcasts dédiés aux œuvres grâce au Centre Pompidou
+ https://lnkd.in/gGifD3r
+- Musées : 10 musées en ligne à visiter depuis son canapé
+https://lnkd.in/gV_S_Gq
+-1150 films sont disponibles sur https://lnkd.in/gspcqCm
+
 Blogs sur le ciné
 ---
 - http://mondocine.net/
